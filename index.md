@@ -10,5 +10,8 @@ Currently, I work as a Professor at [Bridgewater State University](https://www.b
 ### Contact Info
 * email: tsurasinghe@bridgew.edu
 * [ResearchGate](https://www.researchgate.net/profile/Thilina-Surasinghe-2)
+* [https://scholar.google.com/citations?hl=en&user=dqBWhhgAAAAJ&view_op=list_works&sortby=pubdate](Google Scholar)
+
+Soical Media
 * [Twitter](https://x.com/ThilinaSurasin1)
 * [BlueSky Social](https://bsky.app/profile/thilinawildlife.bsky.social)
