@@ -2,6 +2,10 @@
 ### PhD (Fisheries & Wildlife Biology) 
 ## Biodiversity and Conservation Sciences
 
+![Thilina Surasinghe](https://www.bridgew.edu/sites/bridgew/files/styles/180x220/public/media/portrait/Surasinghe%2CThilina2-180x220.jpg "Thilina Surasinghe")
+![](https://www.bridgew.edu/sites/bridgew/files/styles/max_470x470/public/media/article_featured_image/Surasinghe007RGB.jpg)
+
+
 I am a wildlife ecologist with specialization in environmental science and conservation biology. I earned my PhD from Clemson University, USA with my research focus on the impacts of current and historical land uses on stream ecosystems. 
 My research focuses on community organization and biotic homogenization along urban-rural gradients; landscape-scale conservation planning; conservation of endangered wildlife; revision of environmental policies; and ecology of freshwater ecosystems.
 
