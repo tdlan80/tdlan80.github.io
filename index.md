@@ -1,4 +1,4 @@
-# Dr. Thilina Surasinghe
+# <font color="purple">Dr. Thilina Surasinghe</font>
 ### PhD (Fisheries & Wildlife Biology) 
 ## Biodiversity and Conservation Sciences
 
